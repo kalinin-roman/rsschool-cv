@@ -21,6 +21,7 @@ If I take on a task, I try to bring it to an ideal state.
 
 
 * (2011-2017) Herzen University, St. Petersburg
+    * Bachelor of Science, Molecular biology
     * Master of Science, Molecular 
 
 
